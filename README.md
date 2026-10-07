@@ -24,3 +24,5 @@ https://github.com/gogadathanuja743-byte/Thanuja_repositore/blob/main/Screenshot
 Artificial intelligence Certificate 
 
 https://github.com/gogadathanuja743-byte/Thanuja_repositore/blob/main/Screenshot_2026-10-07-10-39-35-899_cn.wps.xiaomi.abroad.lite.png
+  
+COMPUTER CERTIFICATION 
