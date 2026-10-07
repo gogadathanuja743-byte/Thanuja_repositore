@@ -26,3 +26,8 @@ Artificial intelligence Certificate
 https://github.com/gogadathanuja743-byte/Thanuja_repositore/blob/main/Screenshot_2026-10-07-10-39-35-899_cn.wps.xiaomi.abroad.lite.png
   
 COMPUTER CERTIFICATION 
+ https://github.com/gogadathanuja743-byte/Thanuja_repositore/blob/main/Screenshot_2026-10-07-10-50-11-977_cn.wps.xiaomi.abroad.lite.png
+
+https://github.com/gogadathanuja743-byte/Thanuja_repositore/blob/main/Screenshot_2026-10-07-10-50-33-420_cn.wps.xiaomi.abroad.lite.png
+
+https://github.com/gogadathanuja743-byte/Thanuja_repositore/blob/main/Screenshot_2026-10-07-10-51-21-525_cn.wps.xiaomi.abroad.lite.png
