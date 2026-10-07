@@ -15,3 +15,8 @@ SSC MARKS MEMO
 INTER MARKS MEMO
   
 https://github.com/gogadathanuja743-byte/Thanuja_repositore/commit/f8ddea6e7afc871a8d5fbe0d7649fadad364ee57
+ 
+ACHIEVEMENTS 
+   
+Python Certificate 
+https://github.com/gogadathanuja743-byte/Thanuja_repositore/blob/main/Screenshot_2026-10-07-10-40-39-157_cn.wps.xiaomi.abroad.lite.png
