@@ -20,3 +20,7 @@ ACHIEVEMENTS
    
 Python Certificate 
 https://github.com/gogadathanuja743-byte/Thanuja_repositore/blob/main/Screenshot_2026-10-07-10-40-39-157_cn.wps.xiaomi.abroad.lite.png
+ 
+Artificial intelligence Certificate 
+
+https://github.com/gogadathanuja743-byte/Thanuja_repositore/blob/main/Screenshot_2026-10-07-10-39-35-899_cn.wps.xiaomi.abroad.lite.png
